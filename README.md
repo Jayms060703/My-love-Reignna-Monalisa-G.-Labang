@@ -6,14 +6,14 @@ If one day we end up separated, I will understand. I will not blame you, and I w
 
 But please remember this, no matter what happens — I love you so, so, so much. My love for you is real and sincere. Even if we are not together someday, you will always have a special place in my heart, and I will always pray for your peace, your happiness, and your healing.
 
-Thank you for loving me when I was not easy to love.
+I want you to know I am trying to change. I am doing my best to grow and become a better person, and to become a Godly man — someone who can love with patience, respect, and a clean heart. I want to be a man who can lead a family with faith, love his wife sincerely, and teach Godly ways to his children. I am praying, learning, and correcting myself little by little. I want my life to please the Lord. Hopefully, I will be able to do all of this with you.
+
+i love you, ren.
+
 
 I always right your name to test a pen.
 
-
-i love you ren.
-
-— doi
+— doi 2-16-26
 
 
 Romans 8:38–39
