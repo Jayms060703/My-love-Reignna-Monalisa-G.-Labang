@@ -1,4 +1,6 @@
-my love, hai
+Feb. 15, 2026
+
+nang,
 
 I know you suffered a lot because of me. I see now the pain I caused, and I am truly sorry. I know I have many flaws, and sometimes I am hard to understand and hard to love. To be honest, there are days I don’t even like myself because I see the same mistakes again and again.
 
@@ -11,10 +13,6 @@ I want you to know I am trying to change. I am doing my best to grow and become 
 i love you, ren.
 
 
+— doi
+
 I always right your name to test a pen.
-
-— doi 2-16-26
-
-
-Romans 8:38–39
-“For I am convinced that neither death nor life… nor anything else in all creation, will be able to separate us from the love of God that is in Christ Jesus our Lord.”
